@@ -1,3 +1,10 @@
+# Mine vs. Yours
+What is mine is mine, what is yours is negotiable.
+
+# Fuck the Very Rich &amp; the GREED they advertise
+
+# Drumpf and Musk - idiot and Afrikaner
+
 # Dunning-Kruger-Effect
 Overconfident assholes who believe they know EVERYTHING about EVERYTHING. Stopped learning because they know it already.
 
